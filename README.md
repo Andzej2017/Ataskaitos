@@ -1,1 +1,1 @@
-Laboratorinių darbų ataskaitos
+Laboratorinių darbų ataskaitos bei kursinis darbas
